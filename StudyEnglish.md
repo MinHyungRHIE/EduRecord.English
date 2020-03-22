@@ -50,3 +50,20 @@ And I'm telling you, not a chance <br>
 
 For better or worse <br>
 무슨 일이 있더라도
+
+# 2020.03.23(금)
+President Siebert, Dr.Cooper is...<br>
+Siebert 총장님, Cooper 박사님이...
+
+I need to talk to you about the paper that Dr.Flowler and I published<br>
+뜻
+
+I'm finally putting it out there<br>
+**\*put ~ out there - (이  세상에) 내 놓다**
+
+| Get | 상태의 변화를 의미 |
+|---|---|
+|Be동사처럼 쓰임 | I am sick - I got sick |
+|| I got tired - I am tired|
+|I was sick yesterday| 나 어제 아팠어(아펐다는 사실)|
+|I got sick yesterday | 나 어제 아팠어(아파졌음)|
