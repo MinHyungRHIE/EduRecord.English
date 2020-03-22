@@ -61,9 +61,31 @@ I need to talk to you about the paper that Dr.Flowler and I published<br>
 I'm finally putting it out there<br>
 **\*put ~ out there - (이  세상에) 내 놓다**
 
+Get<br>
 | Get | 상태의 변화를 의미 |
 |---|---|
 |Be동사처럼 쓰임 | I am sick - I got sick |
 || I got tired - I am tired|
-|I was sick yesterday| 나 어제 아팠어(아펐다는 사실)|
-|I got sick yesterday | 나 어제 아팠어(아파졌음)|
+|I was sick yesterday| 나 어제 아팠어<br>(아펐다는 사실 언제부터 아팠는지 모름)|
+|I got sick yesterday | 나 어제 아팠어<br>(아파졌음)|
+* They both convey the meaning that you were sick yesterday
+**\*convey 전달하다**<br>
+vague한(명료하지 않은) 의미를 갖는 문장
+* this is getting boring : 점점 더 지루해져 간다
+* this is boring : 지루한거임 (언제부터인지 모름)
+* It got boring aroung 8 o' clock : 8시 쯤 지루해 지더라
+* the weather is getting cloudy
+
+I am going to go to the park today <br>
+I am gonna go to the park today <br>
+I'mma go to the park today<br>
+
+You have to do your homework<br>
+You hafta do your homework<br>
+
+I must have left my phone at 노래방. (노래방에 핸드폰 두고 왔나봐)<br>
+I musta left my phone at 노래방.
+
+You haven't eaten all day? (하루종일 아무것도 안먹었어?)<br>
+I would have died (나라면 죽었을거야.)<br>
+I woulda died.
