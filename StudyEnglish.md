@@ -90,7 +90,7 @@ You haven't eaten all day? (하루종일 아무것도 안먹었어?)<br>
 I would have died (나라면 죽었을거야.)<br>
 I woulda died.
 
-# 2020.03.23(금)
+# 2020.03.24(화)
 He still tells the story about how Monica tried to escape from fat camp<br>
 아빠는 아직도 Monica가 비만 탈출 캠프에서 도망치려 했던 얘기하잖아
 
@@ -143,7 +143,8 @@ It's obvious that they meant well.<br>
  I mean, just because most of the men I've known in my life happend to be jerks<br>
  아니, 내가 만났던 남자들이 어쩌다 보니 전부 나쁜 놈들이었다고 해서<br>
 ***jerk : 멍청이, 바보**
-***happen to : ~게 되다**
+***happen to : ~게 되다**<br>
+
 doesn't mean I shoud just assume Leonard and Sheldon are.
 레오날드랑 셀든도 그렇다고 생각하면 안 되는 거잖아.
 
@@ -152,4 +153,57 @@ I should probably nod.<br>
 
 That's exactly what I thought<br>
 나도 딱 그렇게 생각했어.
+
+# 2020.03.25(수)
+Yeah. So what else is going on with your life?<br>
+그래, 뭐 또 다른 일은 없었니?
+
+Uh, well, I was dating a women at the university but we broke up.<br>
+음, 글쎄요, 대학에서 만난 여자랑 사귀고 있었는데 헤어졌어요.
+
+I'm sorry to hear that.<br>
+그거 참 안됐구나
+
+I know your are. That's why you just bought me a new iPad<br>
+안타까우신 거 잘 알아요. 그래서 새로운 아이패드도 사주신 거잖아요
+
+And before you start, I am not interested in you arranging a marriage for me.<br>
+그리고 본격적으로 잔소리 하시기 전에 말씀드리자면, 정략 결혼 같은 거에는 관심이 없어요.<br>
+***arrange:주선하다**<br>
+
+Oh, I gave up on that a long time ago.<br>
+아, 그런 건 한참 전에 포기했단다.
+
+You did?<br>
+그래요?
+
+It's too much work<br>
+너무 귀찮아
+
+You're an adult who can't get by without an allowance from his parents.<br>
+넌 부모한테 용돈을 받지 않고선 살아가지 못하는 성인이잖니.<br>
+***get by : 그럭저럭 살아 나가다**
+***allowance : 용돈**<br>
+
+Ugh... I'm like really cold, <br>
+으... 저 지금 너무 춥고,
+
+and I'm getting the shivers.<br>
+소름 돋아요<br>
+***shiver:오싹한 느낌, 전율**
+
+I just don't like stuff like this.<br>
+전 그냥 이런 걸 안 좋아해요.
+
+I mean, I live for it. But at the same time, I don't like it.<br>
+아니 그게, 너무 좋은데, 싫어요<br>
+***live for : ~를 위해 살다**
+
+Okay, if I saw that coming towards me down the street,<br>
+자, 만약에 저편에서 저게 저를 향해 오는 걸 봤다면<br>
+***towards : 향하여, 쪽으로**<br>
+
+I would be across the street and the other direction<br>
+저는 길 건너편에서 반대방향으로 갔을 거에요.<br>
+***across the street : 건너편**
 
