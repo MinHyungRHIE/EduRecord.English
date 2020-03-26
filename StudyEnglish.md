@@ -207,3 +207,113 @@ I would be across the street and the other direction<br>
 저는 길 건너편에서 반대방향으로 갔을 거에요.<br>
 ***across the street : 건너편**
 
+# 2020.03.26(목)
+Did your daddy buy you out of the army?<br>
+너네 아빠가 군대빠지게 돈 대줬냐?<br>
+***buy~out:돈을주고 ~를 제대시키다, 손을떼게하다**
+
+Can he buy me out of the army too?<br>
+나도 돈으로 빼줄 수 없냐?
+
+There is danger of mod attacking armory, corner 21st Street, Second Avenue<br>
+폭도들이 2번가 21번 도로에 있는 무기고를 공격할 위험이 있습니다.<br>
+***mob : 폭도**
+***armory : 무기고**
+***avenue : 거리, 가**
+
+There is about 500 stand of arms in it<br>
+무기고에는 무기 약 500벌가량이 있습니다.<br>
+***stand of arms : 무기 한 벌**
+
+The line is dead<br>
+전화가 불통이에요!
+
+They're trying to cut all the wires!<br>
+전화선을 다 끊으려고 해요!
+
+Uh... I've got some bad news<br>
+어... 안좋은 소식이 있어
+
+There's no cell service in here<br>
+여기 신호가 안잡혀
+
+There were plenty of ways to pass the time before smartphones were invented.<br>
+스마트폰 발명되기 전에도 시간 때울 방법은 있었어.<br>
+***pass the time : 시간을 때우다**
+
+I'll look them up<br>
+내가 검색해 볼께
+
+Son of a biscuit<br>
+욕설을 순화시킨 표현
+
+What kind of store in 21st century doesn't at least have Wi-Fi?<br>
+21세기에 와이파이도 없는 가게가 어디 있어?
+
+I'm gonna call their corporate office<br>
+본사에 연락해야지.
+
+After 10, 15 minutes, we all begin to slouch in our chairs<br>
+우리는 10분, 15분만 지나도 의자에 구부정하게 앉기 시작하죠<br>
+***slouch : 구부정하니 앉다**
+
+So here are some basic exercies you can do while sitting in your chair
+
+the first exercise is a chin tuck.<br>
+첫번째 운동은 턱 밀어 넣기입니다.<br>
+***chin : 턱**
+***tuck : 밀어넣다**
+
+Second exercise is for your upper traps.<br>
+두번째 운동은 상부 승모근 운동입니다.<br>
+***traps : trapezius의 줄임말로 승모근을 의미함**
+
+Um, waiter, check please.<br>
+음, 웨이터, 계산서 좀 갖다주세요.
+
+He's already taken care of it, ma'am<br>
+이미 지불하셨습니다, 손님.<br>
+***take care of ~ : ~을 돌보다, ~을 처리하다**
+***ma'am : 부인, 손님(여성)**
+
+Is that so?<br>
+그러셨나요?
+
+could you have my car brought around, please?<br>
+제 차좀 가져와주시곘어요?<br>
+***bring a car around : 차를 가져오다**
+
+Right away<br>
+곧바로, 즉시
+
+I've got to get going<br>
+저 이만 가봐야 할 것 같아요.
+
+Yeah, actually I do, too.<br>
+네 사실 저도요.
+
+What is it like?<br>
+어떻냐고요?
+
+It's great<br>
+아주 좋아요
+
+I remember how that was<br>
+어땠는지 기억나요.
+
+it's really... I'm a very lucky person,
+
+because, you know, of my parents.<br>
+왜냐하면, 그게, 제 부모님 덕분이죠.
+
+My parents are supportive of me.<br>
+제 부모님은 저를 지지해주시거든요.<br>
+***supportive : 지원하는, 힘을 주는**
+
+And uh... if it wasn't for them,<br>
+그래서 그분들이 아니었다면
+
+I probably wouldn't be here with you,<br>
+
+Lucky you.<br>
+좋으시겠네요.
